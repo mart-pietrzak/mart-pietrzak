@@ -8,4 +8,4 @@ I'm Marty, an I'm an aspiring data analyst based in Poland. Throughout my profes
 - 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/mart-pietrzak/)
 - 😄 Pronouns: she/they
 - ⚡ Fun fact: I'm a huge horror buff!
--->
+
